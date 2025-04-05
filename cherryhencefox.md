@@ -10,4 +10,4 @@ So, now that I have that out of the way, why am I actually writing this? Well, i
 
 ### Thank you, Cherry Hencefox.
 
-RalziTech; Written with <3 from Greenhithe, United Kingdom
+Written with <3 by RalziTech from Greenhithe, United Kingdom on April 5th, 2025
